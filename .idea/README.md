@@ -13,9 +13,12 @@ Para una sinopsis más acertada visitar: ['Shameless (US)', el mundo de los Gall
 
 ##  Mis personajes favoritos
 
-- Ian Gallagher :kissing_smiling_eyes: ![Ian](https://preview.redd.it/8s9ulnz991x61.png?width=946&format=png&auto=webp&s=4775057c6d16aac234d02c3fefe44136e6d88829)
-- Fiona Gallagher ![fiona](https://deadline.com/wp-content/uploads/2018/08/shameless-emmy-rossum.jpg)
-- Mickey Milkovich ![Mickey](https://www.tvinsider.com/wp-content/uploads/2019/04/Shameless_512_c0238.R.jpg)
+- Ian Gallagher :kissing_smiling_eyes: 
+ ![Ian](https://preview.redd.it/8s9ulnz991x61.png?width=946&format=png&auto=webp&s=4775057c6d16aac234d02c3fefe44136e6d88829)
+- Fiona Gallagher 
+![fiona](https://deadline.com/wp-content/uploads/2018/08/shameless-emmy-rossum.jpg)
+- Mickey Milkovich 
+![Mickey](https://www.tvinsider.com/wp-content/uploads/2019/04/Shameless_512_c0238.R.jpg)
 ## ¿Dónde ver Shameless?
 Puede ver Shameless en [HBOmax](https://play.hbomax.com/page/urn:hbo:page:home). 
 
